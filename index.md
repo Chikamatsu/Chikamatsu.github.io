@@ -10,3 +10,5 @@ Iron Man/Anthony „Tony“ Stark (Robert Downey Jr.) ist der Sohn des Industrie
 * cool
 
 > Kein Geld der Welt vermag eine Sekunde Zeit zu kaufen.
+
+<img src="https://de.web.img3.acsta.net/r_1280_720/newsv7/19/04/18/12/56/4254644.jpg"/>
