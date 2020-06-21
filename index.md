@@ -8,3 +8,5 @@ Iron Man/Anthony „Tony“ Stark (Robert Downey Jr.) ist der Sohn des Industrie
 * geschickt
 * egozentrisch
 * cool
+
+> Kein Geld der Welt vermag eine Sekunde Zeit zu kaufen.
